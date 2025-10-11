@@ -1,0 +1,2 @@
+# -THE-EQUITABLE-EDGE
+This project focuses on promoting gender equality by creating awareness and providing equal opportunities for all genders in education, employment, and leadership.It aims to reduce discrimination, challenge stereotypes, and empower both men and wowen to participate fully in society. Through training, advocacy, and community engagement, the project seeks to build a fair and inclusive enviroment for everyone.
